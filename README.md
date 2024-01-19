@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on future projects
 - 📫 How to reach me IG  @thatsxavierr
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: T'm ambidextrous
+- ⚡ Fun fact: I'm ambidextrous
 
 <!---
 thatsxavierr/thatsxavierr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
