@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thatsxavierr
-- 👀 I’m interested in sports
+- 👀 I’m interested in sports and technolgy. 
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on future projects
 - 📫 How to reach me IG  @thatsxavierr
